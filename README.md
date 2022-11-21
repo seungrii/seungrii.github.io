@@ -1,1 +1,0 @@
-# seungrii.github.io

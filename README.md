@@ -1,2 +1,0 @@
-# seungrii.github.io
-z
